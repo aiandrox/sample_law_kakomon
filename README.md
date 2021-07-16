@@ -1,0 +1,1 @@
+# sample_law_kakomon
